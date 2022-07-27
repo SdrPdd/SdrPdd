@@ -1,4 +1,4 @@
-- :woman_student: Master's degree student in aerospace engineering, known as a strong problem solver, hard worker and solution oriented.
+- :woman_student: Master's degree in aerospace engineering, known as a strong problem solver, hard worker and solution oriented.
 
 - 👀 Passion for learning, teaching and helping others.
 
