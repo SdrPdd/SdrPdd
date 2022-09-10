@@ -1,4 +1,4 @@
-- :woman_engineer: Master's degree in aerospace engineering, known as a strong problem solver, hard worker and solution oriented.
+- :woman_astronaut: Master's degree in aerospace engineering, known as a strong problem solver, hard worker and solution oriented.
 
 - 👀 Passion for learning, teaching and helping others.
 
